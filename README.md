@@ -1,0 +1,2 @@
+# simone-la-cool
+noobs
